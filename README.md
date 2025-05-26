@@ -5,9 +5,9 @@
 </p>
 
 <p align="center" width="100%">
-    <img width="17.4%" src="https://i.postimg.cc/Xq93n8vS/imagem-2025-05-25-210240914.png"> 
+    <img width="16.7%" src="https://i.postimg.cc/bw1Swsg1/ezgif-com-apng-to-gif-converter.gif"> 
     <img width="33%" src="https://i.postimg.cc/sDkvM19j/saradance.gif"> 
-    <img width="15%" src="https://i.postimg.cc/PJ5Nx9Bs/imagem-2025-05-25-210040920.png"> 
+    <img width="15%" src="https://i.postimg.cc/YjKgdg8q/ezgif-jskskawodn.gif"> 
 </p>
 
 <p align="center" width="100%">
