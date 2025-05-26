@@ -11,9 +11,9 @@
 </p>
 
 <p align="center" width="100%">
-    <img width="15%" src="https://i.postimg.cc/zfgG4d7F/sarastamp1.png">
-    <img width="15%" src="https://i.postimg.cc/T3dcf44G/sarastamp2.png">
-    <img width="15%" src="https://i.postimg.cc/Sx9M90tc/sarastamp3.png">
+    <img width="20%" src="https://i.postimg.cc/zfgG4d7F/sarastamp1.png">
+    <img width="20%" src="https://i.postimg.cc/T3dcf44G/sarastamp2.png">
+    <img width="20%" src="https://i.postimg.cc/Sx9M90tc/sarastamp3.png">
 </p>
 </p>
 
