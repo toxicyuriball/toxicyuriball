@@ -14,7 +14,7 @@
   𝖊𝖚𝖕𝖍𝖔𝖓𝖎𝖆 ノ 𝖋𝖗𝖆𝖓𝖟 . they/them pref 𐔌՞ ܸ.ˬ.ܸ՞𐦯
 </p>
 <p align="center">
-forsaken, hazbin/helluva fans 𝙝𝙚𝙖𝙫𝙞𝙡𝙮 dni
+forsaken, hellaverse, tfc fans 𝙝𝙚𝙖𝙫𝙞𝙡𝙮 dni
 </p>
 
 <p align="center">
