@@ -2,11 +2,11 @@
 <img src="https://64.media.tumblr.com/4ab08389650d31476de1656e382a872d/e4eccd3b03350099-64/s400x600/25867d3f938cf30b2031a8f51ed668b4ad0d6c33.pnj" />
 </p>
 <p align="center">
-<img src="https://views-counter.vercel.app/badge?pageId=toxicyuriball&leftColor=b1a7a7&rightColor=ffffff&type=total&label=yurilings&style=none" alt="Views Counter">
+<img src="https://views-counter.vercel.app/badge?pageId=toxicyuriball&leftColor=cccccc&rightColor=ffffff&type=total&label=yurilings&style=none" alt="Views Counter">
 </p>
 
 <p align="center">
-<img src="https://i.postimg.cc/kMTpt4Mw/hasemura.png" />
+<img src="https://i.postimg.cc/x1GkjTM4/blur-edges.png" />
 </p>
 
 <p align="center">
