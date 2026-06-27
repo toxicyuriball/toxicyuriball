@@ -16,12 +16,10 @@
   𝖊𝖚𝖕𝖍𝖔𝖓𝖎𝖆 ノ 𝖋𝖗𝖆𝖓𝖟 . they/them pref 𐔌՞ ܸ.ˬ.ܸ՞𐦯
 </p>
 <p align="center">
-forsaken, hellaverse, tfc fans 𝙝𝙚𝙖𝙫𝙞𝙡𝙮 iwec/dniuf
+forsaken, hellaverse, tfc 𝙝𝙚𝙖𝙫𝙞𝙡𝙮 iwec/dniuf i do not like yall
+  
 </p>
 
-<p align="center">
- 𝘪 𝘸𝘪𝘭𝘭 𝘧𝘰𝘭𝘭𝘰𝘸 𝘣𝘢𝘤𝘬 𝘪𝘧 𝘸𝘦 𝘩𝘢𝘷𝘦 𝘮𝘶𝘵𝘶𝘢𝘭 𝘪𝘯𝘵𝘦𝘳𝘦𝘴𝘵𝘴 !!!
-</p>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[rentry](https://rentry.co/toxicyuriball) ㅤㅤㅤㅤㅤ [ata](https://toxicyuri.atabook.org) ㅤㅤㅤㅤㅤ [strawp](https://toxicyuriball.straw.page)
 
