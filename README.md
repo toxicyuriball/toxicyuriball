@@ -1,16 +1,16 @@
 <p align="center">
-<img src="https://64.media.tumblr.com/4ab08389650d31476de1656e382a872d/e4eccd3b03350099-64/s400x600/25867d3f938cf30b2031a8f51ed668b4ad0d6c33.pnj" />
+<img src="https://64.media.tumblr.com/0b8536641e00e1137194ddba87f5df45/dc6f0badd4745795-c8/s640x960/aab3beb28ed587f29548ffe1fc4f5b3dd72a11a9.pnj" />
 </p>
 <p align="center">
-<img src="https://views-counter.vercel.app/badge?pageId=toxicyuriball&leftColor=cccccc&rightColor=ffffff&type=total&label=yurilings&style=none" alt="Views Counter">
-</p>
-
-<p align="center">
-<img src="https://i.postimg.cc/x1GkjTM4/blur-edges.png" />
+<img src="https://views-counter.vercel.app/badge?pageId=toxicyuriball&leftColor=fcb3c8&rightColor=ffffff&type=total&label=yurilings&style=none" alt="Views Counter">
 </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/5e6dcc3d99d047f7457c4713e45a12de/e4eccd3b03350099-51/s400x600/345c3f71109203f3a326e64eac1908b310d15698.pnj" />
+<img src="https://i.postimg.cc/zfQjWvpt/blur-edges.png" />
+</p>
+
+<p align="center">
+  <img src="https://64.media.tumblr.com/cc178249178357a6cc918ac44df2bb9d/0c2ec245ca7fd467-a7/s250x400/421417742c9897cd41a4c7c5fb98ba589b21a4c4.gifv" />
 </p>
 <p align="center">
   euphonia ノ franz . they/them pref 𐔌՞ ܸ.ˬ.ܸ՞𐦯
@@ -26,5 +26,5 @@ forsaken, hellaverse, tfc 𝙝𝙚𝙖𝙫𝙞𝙡𝙮 iwec/dniuf i do not like 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[rentry](https://rentry.co/toxicyuriball) ㅤㅤㅤㅤㅤ [ata](https://alignedstars.atabook.org) ㅤㅤㅤㅤㅤ [strawp](https://toxicyuriball.straw.page)
 
 <p align="center">
-<img src="https://64.media.tumblr.com/4ab08389650d31476de1656e382a872d/e4eccd3b03350099-64/s400x600/25867d3f938cf30b2031a8f51ed668b4ad0d6c33.pnj" />
+<img src="https://64.media.tumblr.com/0b8536641e00e1137194ddba87f5df45/dc6f0badd4745795-c8/s640x960/aab3beb28ed587f29548ffe1fc4f5b3dd72a11a9.pnj" />
 </p>
