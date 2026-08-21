@@ -25,7 +25,7 @@ forsaken, dandys world, hellaverse, tfc 𝙝𝙚𝙖𝙫𝙞𝙡𝙮 iwec/dniuf 
 <img src="https://64.media.tumblr.com/4fb1e1ef68110d696f9f4761c3634488/3432e847ec819b1c-9d/s250x400/95f789bb4377406c581f6e9da9cb5d861a7979fe.gifv"> <img src="https://64.media.tumblr.com/94d29fd0018ccf151428911b7690d46b/1c4e9cc8e312ba76-9b/s250x400/61c192ee14698ead1f295fe7b2f47f21f0fe7665.gifv">
 </p>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤ[rentry](https://rentry.co/toxicyuriball) ㅤㅤㅤㅤㅤ [ata](https://alignedstars.atabook.org) ㅤㅤㅤㅤㅤ [strawp](https://toxicyuriball.straw.page)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤ[rentry](https://rentry.co/uItimaterebeI) ㅤㅤㅤㅤㅤ [ata](https://alignedstars.atabook.org) ㅤㅤㅤㅤㅤ [strawp](https://toxicyuriball.straw.page)
 
 <p align="center">
 <img src="https://64.media.tumblr.com/0b8536641e00e1137194ddba87f5df45/dc6f0badd4745795-c8/s640x960/aab3beb28ed587f29548ffe1fc4f5b3dd72a11a9.pnj" />
