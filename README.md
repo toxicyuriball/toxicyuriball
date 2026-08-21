@@ -13,7 +13,7 @@
   <img src="https://64.media.tumblr.com/cc178249178357a6cc918ac44df2bb9d/0c2ec245ca7fd467-a7/s250x400/421417742c9897cd41a4c7c5fb98ba589b21a4c4.gifv" />
 </p>
 <p align="center">
-  euphonia ノ franz . they/them pref 𐔌՞ ܸ.ˬ.ܸ՞𐦯
+  euphonia ノ franz . they/xe/hir pref 𐔌՞ ܸ.ˬ.ܸ՞𐦯
 </p>
 <p align="center">
 forsaken, dandys world, hellaverse, tfc 𝙝𝙚𝙖𝙫𝙞𝙡𝙮 iwec/dniuf i do not like yall
