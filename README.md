@@ -28,7 +28,7 @@ ${\textsf{\color{#DE8D84}⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔
 <img src="https://i.postimg.cc/Y9GwM6rV/toxicyuributton.gif"> <img src="https://i.postimg.cc/G2Wn249R/lesbianpride.gif">
 </p>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ  ㅤㅤㅤㅤㅤ[rentry](https://rentry.co/uItimaterebeI) ㅤㅤㅤㅤ [新book](https://alignedstars.atabook.org) ㅤㅤㅤㅤ [straw](https://toxicyuriball.straw.page)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ  ㅤㅤㅤㅤㅤ[rentry](https://rentry.co/sonekou) ㅤㅤㅤㅤ [新book](https://alignedstars.atabook.org) ㅤㅤㅤㅤ [straw](https://toxicyuriball.straw.page)
 
 <p align="center">
 <img src="https://i.postimg.cc/jj6sBQjC/ribbondivider.png" />
