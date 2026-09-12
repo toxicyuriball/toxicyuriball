@@ -16,7 +16,7 @@ ${\textsf{\color{#DE8D84}⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔
   ${\textsf{\color{#DE8D84}euphonia ノ etherea!  ୭ ˚.  sie/hir pref}}$
 </p>
 <p align="center">
- ${\textsf{\color{#DAA79B}cutest ang?l in this current universe! ଘ(੭´꒳`)°* ੈ‧₊˚}}$
+ ${\textsf{\color{#DAA79B}cutest ang♡l in this current universe! ଘ(੭´꒳`)°* ੈ‧₊˚}}$
   <p align="center">
   ${\textsf{\color{#CD8585}isfp sx/so 468 rluei melancholeric TRUENEUTRAL!}}$ 
     <p align="center">
