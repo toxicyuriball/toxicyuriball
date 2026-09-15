@@ -13,7 +13,7 @@
 ${\textsf{\color{#DE8D84}⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔}}$
 </p>
 <p align="center">
-  ${\textsf{\color{#DE8D84}euphonia ノ etherea!  ୭ ˚.  sie/hir pref}}$
+  ${\textsf{\color{#DE8D84}andromeda ノ etherea!  ୭ ˚.  sie/hir pref}}$
 </p>
 <p align="center">
  ${\textsf{\color{#DAA79B}cutest ang♡l in this current universe! ଘ(੭´꒳`)°* ੈ‧₊˚}}$
