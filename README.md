@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://views-counter.vercel.app/badge?pageId=toxicyuriball&leftColor=72516C&rightColor=FFF9CB&type=total&label=yurilings&style=none" alt="Views Counter">
+<img src="https://views-counter.vercel.app/badge?pageId=toxicyuriball&leftColor=72516C&rightColor=45364B&type=total&label=꒰১໒꒱&style=none" alt="Views Counter">
 </p>
 
 <p align="center">
