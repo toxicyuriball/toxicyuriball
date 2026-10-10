@@ -10,5 +10,5 @@
 ${\textsf{\color{#72516C}⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔}}$
 </p>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ  ㅤㅤㅤㅤ[rentry](https://rentry.co/sonekou) ㅤㅤㅤㅤ [新book](https://cyberspace.atabook.org) ㅤㅤㅤㅤ [straw](https://toxicyuriball.straw.page)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ  ㅤㅤㅤㅤ[rentry](https://rentry.co/dreamalize) ㅤㅤㅤㅤ [新book](https://cyberspace.atabook.org) ㅤㅤㅤㅤ [straw](https://toxicyuriball.straw.page)
 
